@@ -3,7 +3,7 @@
 Este Código de Conduta descreve nossas expectativas junto aos participantes da comunidade do Instituto HUB, bem como as etapas para relatar comportamentos que não serão tolerados pelo Instituto HUB. Estamos comprometidos em criar um ecossistema acolhedor e inspirador para todos, e nosso código de conduta é fundamental para isso.
 
 
-Como parte da criação de um espaço acessível e descolonizado, valorizamos o significado das diversas perspectivas na sociedade. Dessa forma, nos esforçamos para criar um ambiente em que diversas abordagens ao conhecimento, estilos de comunicação, atitudes em relação a conflitos, abordagens para concluir tarefas, estilos de tomada de decisão e atitudes em relação à divulgação sejam reconhecidas como enriquecedoras da nossa cultura.
+Como parte da criação de um espaço acessível e decolonizado, valorizamos o significado das diversas perspectivas na sociedade. Dessa forma, nos esforçamos para criar um ambiente em que diversas abordagens ao conhecimento, estilos de comunicação, atitudes em relação a conflitos, abordagens para concluir tarefas, estilos de tomada de decisão e atitudes em relação à divulgação sejam reconhecidas como enriquecedoras da nossa cultura.
 
 
 O Instituto HUB está comprometido com os ideais expressos no código de conduta e solicitamos a todos os envolvidos que adotem esses princípios. Somos uma comunidade diversificada e às vezes isso significa que precisamos trabalhar mais para garantir que estamos criando um ambiente de confiança e respeito, onde todos os participantes se sintam à vontade e incluídos.
